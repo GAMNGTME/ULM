@@ -16,3 +16,6 @@ Join my Discord Server for Bug Reports, give us Feedback there and help us to im
 Also Join the Official Discord Server of the LifeSteal Network
 
 WE ARE NOT AFFILIATED WITH ANYONE
+
+LSN DISCORD: https://discord.gg/XuQ3t4FG4V
+My Discord: https://discord.gg/dXtc9VjWBb
