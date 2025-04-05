@@ -19,3 +19,4 @@ WE ARE NOT AFFILIATED WITH ANYONE
 
 LSN DISCORD: https://discord.gg/XuQ3t4FG4V
 My Discord: https://discord.gg/dXtc9VjWBb
+This on Modrinth: https://modrinth.com/modpack/unofficial-ls-modpack
